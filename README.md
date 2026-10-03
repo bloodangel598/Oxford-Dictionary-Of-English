@@ -215,4 +215,4 @@ This is the full free version of the Oxford Dictionary of English with all featu
 Unlock the full potential of the English language with the Oxford Dictionary of English. **Download now for free and start your journey!**
 
 ---
-**Last updated:** 2026-10-03 15:03:17 UTC
+**Last updated:** 2026-10-03 19:01:06 UTC
